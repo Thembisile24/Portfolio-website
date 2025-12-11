@@ -92,9 +92,9 @@ I'd love to connect and explore opportunities where I can contribute my technica
 
 📧 Email: thembisilenkosi17@gmail.com
 
-💼 LinkedIn: Your Link Here
+💼 LinkedIn: https://www.linkedin.com/in/thembisile-nkosi-89ab72288/
 
-👨‍💻 GitHub: Your Profile Here
+👨‍💻 GitHub:
 
 © 2025 Thembisile Nkosi
 
