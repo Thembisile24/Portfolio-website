@@ -94,7 +94,7 @@ I'd love to connect and explore opportunities where I can contribute my technica
 
 💼 LinkedIn: https://www.linkedin.com/in/thembisile-nkosi-89ab72288/
 
-👨‍💻 GitHub:
+👨‍💻 GitHub:https://github.com/Thembisile24/Thembisile24
 
 © 2025 Thembisile Nkosi
 
